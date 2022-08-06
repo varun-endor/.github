@@ -1,1 +1,2 @@
-![Untitled-3](https://user-images.githubusercontent.com/143776/182232837-1fd364a8-fb27-492c-baf5-ce7f3a732850.png)
+
+![LinkedIn personal keyboard banner keyboard](https://user-images.githubusercontent.com/143776/183243385-b12bbe07-a710-4433-ad73-c1cfa3735a70.jpeg)
